@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hello All I Am a Writer 😅 No Not This Writer As You Think  I Am A Programing Writer That Believes In 0's & 1's not in words  ✨ So ,
+ Looking About My Self Ashish Umesh Bidve I Am A Engineering Student ..! At BSIOTR I Have Learn Programming Language Such As Java , Python , C,C++.. 
+I know this is less for my self but Thats All..!
+ 
+Thank You For Reading This ..!!!✨
 
 <!--
 **AshishBidve/AshishBidve** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
